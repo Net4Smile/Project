@@ -1,1 +1,2 @@
 Mikołaj Wątor
+Jakub Rogóż
